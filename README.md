@@ -1,2 +1,1 @@
-Nama: Avin Anifa Pratama
-NIM: A12.2018.06084
+Nama: Avin Anifa Pratama - A12.2018.06084
